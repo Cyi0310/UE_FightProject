@@ -18,6 +18,8 @@
 
 [影片連結](https://www.youtube.com/watch?v=RCJIns5fc7Q)
 
+[執行檔](https://drive.google.com/drive/folders/15swNiR6Orkjhk9kJdOfQvWG7sh02XYfm?usp=drive_link)
+
 
 ## 遊戲操作說明
 
